@@ -1,1 +1,1 @@
-##### [Valery Cherevko](https://v-cherevko.github.io/cv/)
+##### [Valery Cherevko](https://v-cherevko.github.io/cv/cv)
